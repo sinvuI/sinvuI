@@ -3,6 +3,6 @@
 ![bleh](https://file.garden/aWda6_hwaGcNwjuj/chu.png)
 
 
-<sub> i ♡ chiluc yaoi </sub>
+<sub> i ♡ chiluc & akiangel yaoi </sub>
 
 </div>
