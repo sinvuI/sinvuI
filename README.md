@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5352.png" width="240" align="center">
+<img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5352.png" width="215" align="center">
 
 <sub> ${\textsf{\color{#FFFFFF}Sitting}}$
 ${\textsf{\color{#}pretty}}$
