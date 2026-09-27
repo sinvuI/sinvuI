@@ -9,9 +9,6 @@
 
 <sub> whisper 2 interact / usually offtab, c+h.
 </sub>
-      ⠀
-    </td>
-  </tr>
 
   <tr>
     <td>
