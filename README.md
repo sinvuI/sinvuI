@@ -5,19 +5,11 @@
       <img src="https://file.garden/aWda6_hwaGcNwjuj/Untitled239_20260927092757.png" width="120" align="center">
     </td>
     <td>
-      <sub> ${\textsf{\color{#FFFFFF}Sitting}}$
-${\textsf{\color{#}pretty}}$
-${\textsf{\color{#FFFFFF}in}}$
-${\textsf{\color{#}the}}$
-${\textsf{\color{#FFFFFF}prime}}$
-${\textsf{\color{#}of}}$
-${\textsf{\color{#}life.}}$
-</sub>
-          
-<sub> w2i - usually offtab, c+h freely.
+<img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5357.png"width="220" align="center">
+
+<sub> whisper 2 interact / usually offtab, c+h.
 </sub>
       ⠀
-      ⠀<br>
     </td>
   </tr>
 
