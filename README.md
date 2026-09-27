@@ -2,7 +2,7 @@
 <table align="center">
   <tr>
    <td>
-      <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5352.png" width="140" align="center">
+      <img src="https://file.garden/aWda6_hwaGcNwjuj/Untitled239_20260927092757.png" width="140" align="center">
     </td>
     <td>
       <sub> ${\textsf{\color{#FFFFFF}Sitting}}$
