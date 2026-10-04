@@ -7,7 +7,7 @@
     <td>
 <img src="https://file.garden/aWda6_hwaGcNwjuj/Untitled243_20261004160306.png"width="300" align="center">
 
-<sub> whisper 2 interact / usually offtab, c+h enc. 
+<sub>   whisper 2 interact / usually offtab, c+h enc. 
 
   <tr>
     <td>
