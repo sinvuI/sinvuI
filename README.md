@@ -2,13 +2,12 @@
 <table align="center">
   <tr>
    <td>
-      <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5363.png" width="195" align="center">
+      <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5363.png" width="250" align="center">
     </td>
     <td>
-<img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_0403.png"width="220" align="center">
+<img src="https://file.garden/aWda6_hwaGcNwjuj/Untitled243_20261004160306.png"width="300" align="center">
 
-<sub> whisper 2 interact / usually offtab, c+h enc.
-</sub>
+<sub> whisper 2 interact / usually offtab, c+h enc. 
 
   <tr>
     <td>
