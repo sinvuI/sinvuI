@@ -5,10 +5,14 @@
       <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5363.png" width="250" align="center">
     </td>
     <td>
-<img src="https://file.garden/aWda6_hwaGcNwjuj/Untitled243_20261004160306.png"width="300" align="center">
-
-<sub>   whisper 2 interact / usually offtab, c+h enc. 
-
+    <p align="center">
+      <img src="https://file.garden/aWda6_hwaGcNwjuj/Untitled243_20261004155859.png" alt="ermm" width="300"> <br>
+      <p align="center">
+      <sub> <b> c+h </b> always enc! often offtab so <b> whisper to int</b> </sub> <br>
+        <br>
+     <p align="center">
+<img src="https://file.garden/aWda6_hwaGcNwjuj/Untitled242_20261004155810.png" alt="ermm" width="300"> <br>
+ </td>
   <tr>
     <td>
       <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5367.png"width="100" align="center">
