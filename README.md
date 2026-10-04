@@ -2,7 +2,7 @@
 <table align="center">
   <tr>
    <td>
-      <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5363.png" width="120" align="center">
+      <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5363.png" width="195" align="center">
     </td>
     <td>
 <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_0403.png"width="220" align="center">
