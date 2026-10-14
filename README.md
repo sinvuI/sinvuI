@@ -7,12 +7,12 @@
     </td>
     <td>
     <p align="center">
-      <img src="https://file.garden/aWda6_hwaGcNwjuj/Untitled243_20261004155859.png" alt="ermm" width="300"> <br>
+      <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5390.png" alt="ermm" width="300"> <br>
       <p align="center">
-      <sub> <b> c+h </b> always enc! often offtab so <b> whisper to int</b> </sub> <br>
+      <sub> <b> semi </b> active — often offtab so <b> whisper to int</b> </sub> <br>
         <br>
      <p align="center">
-<img src="https://file.garden/aWda6_hwaGcNwjuj/Untitled242_20261004155810.png" alt="ermm" width="300"> <br>
+<img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5391.png" alt="ermm" width="300"> <br>
  </td>
   <tr>
     <td>
