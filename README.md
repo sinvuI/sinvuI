@@ -2,7 +2,8 @@
 <table align="center">
   <tr>
    <td>
-      <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5363.png" width="250" align="center">
+     <p align="center">
+      <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5380.png" width="250" align="center">
     </td>
     <td>
     <p align="center">
