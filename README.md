@@ -22,7 +22,7 @@
       <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5401.png"width="100" align="center">       <sub> <b>  your latest tragedy. ”      </b> </sub>
     </td>
     <td>
-           <a href="https://hvnt.atabook.org">𝖺𝗍𝖺𝖻𝗈𝗈𝗄</a>⠀  <img width="25" height="25" alt="https://www.tumblr.com/mikayuuyuri/795856911140536320/haii-uhmcould-you-possibly-make-pixels-with" src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5402.png" />⠀ <a href="https://fluffle.cc/draconiia">𝖿𝗅𝗎𝖿𝖿𝗅𝖾</a>
+           <a href="https://hvnt.atabook.org">𝖺𝗍𝖺𝖻𝗈𝗈𝗄</a>⠀  <img width="25" height="25" alt="https://www.tumblr.com/mikayuuyuri/795856911140536320/haii-uhmcould-you-possibly-make-pixels-with" src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5402.png" />⠀ <a href="https://fluffle.cc/malleo">𝖿𝗅𝗎𝖿𝖿𝗅𝖾</a>
     </td>
   </tr>
 </table>
