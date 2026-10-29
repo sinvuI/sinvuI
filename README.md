@@ -10,7 +10,6 @@
       <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5390.png" alt="ermm" width="300"> <br>
       <p align="center">
       <sub> <b> semi </b> active ・ often offtab so <b> w2i</b> </sub> <br>
-        <sub> hvy <b> malleus & yeon skylar </b>  kin <b> </b> </sub> <br>
         <sub> <b> prone </b> to avoiding <b> convos</b> </sub> <br>
         <br>
      <p align="center">
