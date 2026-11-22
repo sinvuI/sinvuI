@@ -11,6 +11,7 @@
       <p align="center">
       <sub> <b> I do not int first </b> ・ prone to  <b> avoiding convos</b> </sub> <br>
         <sub> <b> even if </b> we are oomfs, <b> plz don’t be offended.</b> </sub> <br>
+        （;´ - `;）
         <br>
      <p align="center">
 <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5391.png" alt="ermm" width="300"> <br>
