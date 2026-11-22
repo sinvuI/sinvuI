@@ -9,8 +9,8 @@
     <p align="center">
       <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5390.png" alt="ermm" width="300"> <br>
       <p align="center">
-      <sub> <b> semi </b> active ・ often offtab so <b> w2i</b> </sub> <br>
-        <sub> <b> prone </b> to avoiding <b> convos</b> </sub> <br>
+      <sub> <b> always anxious </b> ・ prone to  <b> avoiding convos</b> </sub> <br>
+        <sub> <b> even if </b> we are oomfs, <b> don’t be offended.</b> </sub> <br>
         <br>
      <p align="center">
 <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5391.png" alt="ermm" width="300"> <br>
