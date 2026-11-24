@@ -10,7 +10,7 @@
         
   <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5433.gif" width="320" align="center">
            
-<br>   <img width="25" height="25" alt="https://www.tumblr.com/mikayuuyuri/795856911140536320/haii-uhmcould-you-possibly-make-pixels-with" src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5402.png" />⠀<a href="https://fluffle.cc/glooum">𝗰𝗵𝗲𝗰𝗸 𝗺𝗲 𝗼𝘂𝘁</a>
+<br>   <img width="25" height="25" alt="https://www.tumblr.com/mikayuuyuri/795856911140536320/haii-uhmcould-you-possibly-make-pixels-with" src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5434.png" />⠀<a href="https://fluffle.cc/glooum">𝗰𝗵𝗲𝗰𝗸 𝗺𝗲 𝗼𝘂𝘁</a>
     </td>
   </tr>
 </table>
