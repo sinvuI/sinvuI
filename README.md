@@ -8,8 +8,7 @@
       <sub> <b> I do not int first unless close </b> ・ prone to  <b> avoiding convos</b> </sub> <br>
         <sub> <b> even if </b> we are oomfs, <b> plz don’t feel offended.</b> </sub> <br>
         （;´ - `;）
-        <br>
-       <a href="https://sinners.atabook.org">𝖺𝗍𝖺𝖻𝗈𝗈𝗄</a>⠀  <img width="25" height="25" alt="https://www.tumblr.com/mikayuuyuri/795856911140536320/haii-uhmcould-you-possibly-make-pixels-with" src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5402.png" />⠀ <a href="https://fluffle.cc/glooum">𝖿𝗅𝗎𝖿𝖿𝗅𝖾</a>
+        <br>   <img width="25" height="25" alt="https://www.tumblr.com/mikayuuyuri/795856911140536320/haii-uhmcould-you-possibly-make-pixels-with" src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5402.png" />⠀<a href="https://fluffle.cc/glooum">check me out</a>
     </td>
   </tr>
 </table>
