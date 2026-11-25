@@ -5,7 +5,7 @@
 <sub> <b> closer to me baby, I won’t bite! ♡ </b>
 <a href="https://sinners.atabook.org">𝗌𝗂𝗀𝗇 𝗂𝗇!</a>
       <p align="center">
-      <sub> <b> I do not int first unless close </b> ・ prone to  <b> avoiding convos</b> </sub> <br>
+      <sub> <b> I do not int first unless close </b> ・ prone to  <b> being dry</b> </sub> <br>
         <sub> <b> even if </b> we are oomfs, <b> plz don’t feel offended.</b> </sub> <br>
         
   <img src="https://file.garden/aWda6_hwaGcNwjuj/IMG_5433.gif" width="250" align="center">
